@@ -1,2 +1,2 @@
-**Fun Fact:** <Fun Fact>
-**Emoji:** <Favorite Emoji>
+**Fun Fact:** <CUTUTRUL>
+**Emoji:** <❤️>
